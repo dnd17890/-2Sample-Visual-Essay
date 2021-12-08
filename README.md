@@ -1,1 +1,0 @@
-# -2Sample-Visual-Essay
